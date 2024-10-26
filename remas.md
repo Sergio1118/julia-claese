@@ -1,3 +1,3 @@
 hola pape
 como esta pape
-que hacer pepa paera comer que tengo hambrem
+que hacer pepa para ereglaro de sus padres
